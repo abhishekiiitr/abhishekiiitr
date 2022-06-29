@@ -5,7 +5,7 @@
 
 - 💬 Ask me about **Frontened and Machine Learning**
 
-- 📫 How to reach me **abhishekmishra7388@gmail.com**
+- 📫 How to reach me **abhishek46.ugcs20@iiitranchi.ac.in**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
